@@ -1,0 +1,1 @@
+# Nowe repo wasztat badasza
